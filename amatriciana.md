@@ -1,1 +1,1 @@
-See recipe for pasta carbonara
+See recipe for spaghetti carbonara
